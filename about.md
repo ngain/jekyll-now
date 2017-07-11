@@ -4,15 +4,15 @@ title: About
 permalink: /about/
 ---
 
-I am studying to receive a Bachelor's of Science (B.S.) in Business Management at Rensselaer Polytechnic Institute (RPI). Under [The Lally School of Management and Technology](https://lallyschool.rpi.edu/), I study marketing and information systems among several other fields in business. 
+I am studying to receive a Bachelor's of Science (B.S.) in Business Management at Rensselaer Polytechnic Institute (RPI). Under [The Lally School of Management and Technology](https://lallyschool.rpi.edu/), I study finance and information systems along with several other fields in business. 
 
-I have worked in teams for marketing plans and digital marketing analysis (e.g. SEO, AdWords), system analysis, and business strategy/business plan projects.
+I have worked in teams to deliver marketing strategy presentations to clients using digital marketing analysis (e.g. [inbound](http://seopressor.com/blog/inbound-vs-outbound-marketing-more-effective/), [AdWords](https://adwords.google.com/home/)), to create information system designs, and to write a 50-page industry company profile report.
 
-I have acted as a leader in multiple school clubs and will continue to do so in the future. I am usually involved with my school's cultural clubs, relating to language, food, and sports events.
+I have gained leadership experience acting for multiple school clubs, such as [RPI Asian Cultural Union](http://aaw.union.rpi.edu/). I have been heavily involved in my school's cultural scene, hosting events related to languages, foods, and sports. Going forward, I aim to transition to organizations and clubs related to finance.
 
 ### More Information
 
-As hobbies, I enjoy learning languages, playing tennis and swimming, and reading news articles. I hope to puruse skiing as a hobby in the future.
+I enjoy learning languages, playing tennis and swimming, taking walks, and reading news articles. I hope to pursue skiing as a hobby in the future, weather permitting..
 
 ### Contact me
 
