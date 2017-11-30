@@ -1,6 +1,6 @@
 ---
 layout: Post
-title: My _take on the_ Tree Analogy
+title: My take on The Tree Analogy
 ---
 _Originally from a text chat to a friend_
 
