@@ -15,3 +15,5 @@ Jackie Chan could've been one of the endless stuntmen for Bruce Lee. But he refi
 We've only just begun, XXX. Don't you ever lose faith on me. Nobody expects anything of a fresh college grad., nobody expects anything of a young punk, nobody expects anything of a kid... but it's the ones nobody imagines anything of that can sometimes do the things no one imagines. Christy Brown, Stephen Hawking, Frank McCourt, Spielberg, heck, Simon Cowell.
 
 All failures well without what we're endowed with, and all with the courage and tenacity to refocus and center, and redefine the cards that were lain out to them.
+
+[Return to the main blog](https://ngain.github.io/)
