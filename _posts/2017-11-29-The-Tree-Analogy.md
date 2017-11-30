@@ -14,6 +14,7 @@ If life was that simple, saplings would crumble too early for us to ever appreci
 ### Fuck being content.
 
 
+
 The founder of McDonalds, **Ray Kroc**, wasn't content while he worked as a salesman, so he took the cards he was given and turned it into a multi-billion dollar success story that no one forgets.
 
 Jackie Chan could've been one of the endless stuntmen for Bruce Lee. But he refined his passion, studied well beyond a single martial art, worked tirelessly, gave his all to the art of high-flying stunts, and received his lucky break at the ripe age... **of 44.**
