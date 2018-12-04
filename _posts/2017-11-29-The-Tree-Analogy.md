@@ -11,7 +11,7 @@ _Originally from a text chat to a friend_
 If life was that simple, saplings would crumble too early for us to ever appreciate their potential, their sturdiness. They can grow _soooo_ tall, XXX, if they have enough time. Your life will develop in many ways, face many strong gales, shocks of lightning, and plenty of dreary rain in times of grief... but in the end, it becomes an enormous and fruitful **tree**, full of memories in the rings and full of seeds to leave for the future. Do that. 
 
 
-### Fuck being content.
+### *Forget* being content.
 
 
 
