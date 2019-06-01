@@ -4,16 +4,15 @@ title: About
 permalink: /about/
 ---
 
-Rensselaer Polytechnic Institute (RPI)
-[The Lally School of Management and Technology](https://lallyschool.rpi.edu/)
+[Rensselaer Polytechnic Institute](https://lallyschool.rpi.edu/)
 
-I have worked in teams to deliver marketing strategy presentations to clients using digital marketing analysis (e.g. [inbound](http://seopressor.com/blog/inbound-vs-outbound-marketing-more-effective/), [AdWords](https://adwords.google.com/home/)), to create information system designs, and to write a 50-page industry company profile report.
+I have delivered team marketing strategy presentations to clients by through digital marketing concepts (e.g. [inbound](http://seopressor.com/blog/inbound-vs-outbound-marketing-more-effective/), [AdWords](https://adwords.google.com/home/)), and have independently drafted system designs, as well as write a 50-page industry company profile report covering two firms.
 
-I have gained leadership experience acting for multiple school clubs, such as [RPI Asian Cultural Union](http://aaw.union.rpi.edu/). 
+I have gained leadership experience from multiple school clubs, such as [RPI Asian Cultural Union](http://aaw.union.rpi.edu/). 
 
-### More Information
+### Hobbies
 
-I enjoy languages, tennis and swimming, and reading news articles. I hope to pursue skiing as a hobby in the future, weather permitting..
+I enjoy hearing different languages, playing tennis and golf, and reading new articles. 
 
 ### Contact me
 
